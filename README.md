@@ -324,3 +324,7 @@
 ![dog](https://random.dog/1a0535a6-ca89-4059-9b3a-04a554c0587b.jpg)
 
 ---
+### 2026-04-27 01:48의 강아지 (비디오)
+[강아지 보기](https://random.dog/4e2fa1cf-245e-4d0b-8b80-acbc1f724e29.mp4)
+
+---
