@@ -560,3 +560,7 @@
 [강아지 보기](https://random.dog/qa52Vjh.mp4)
 
 ---
+### 2026-06-25 02:11의 강아지
+![dog](https://random.dog/9c5d2539-7f49-470d-96a8-6b83595ee7dc.jpg)
+
+---
