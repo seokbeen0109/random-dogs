@@ -600,3 +600,7 @@
 ![dog](https://random.dog/1ae6411b-8f81-438a-a793-7642a3e61128.jpg)
 
 ---
+### 2026-07-05 02:01의 강아지
+![dog](https://random.dog/2059c82d-452f-4d80-bb11-818da1451511.jpg)
+
+---
