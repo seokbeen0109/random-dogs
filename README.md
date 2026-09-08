@@ -860,3 +860,7 @@
 ![dog](https://random.dog/0c79c11b-c154-43da-8faa-a01e9cfd0ae7.gif)
 
 ---
+### 2026-09-08 01:59의 강아지 (비디오)
+[강아지 보기](https://random.dog/8e8d1ae6-e940-4ba9-8b49-7c3ed78e6c40.mp4)
+
+---
