@@ -960,3 +960,7 @@
 [강아지 보기](https://random.dog/a4c0bd01-b45b-4d53-bd5f-3577b9126b50.mp4)
 
 ---
+### 2026-10-03 02:50의 강아지
+![dog](https://random.dog/94830009-5fb0-4d95-b3ba-c1bf2bae27ce.JPG)
+
+---
