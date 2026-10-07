@@ -976,3 +976,7 @@
 [강아지 보기](https://random.dog/c9d490fe-3edb-4413-ab3f-7bbb64b012c4.mp4)
 
 ---
+### 2026-10-07 03:14의 강아지 (비디오)
+[강아지 보기](https://random.dog/35013aa6-93fb-409a-848b-3a0b5dd8674f.mp4)
+
+---
