@@ -1000,3 +1000,7 @@
 [강아지 보기](https://random.dog/0b0fecd1-7f24-493b-917c-90ab152c948c.mp4)
 
 ---
+### 2026-10-13 04:28의 강아지
+![dog](https://random.dog/e82e125b-94c4-4313-852d-6be6ae41da41.jpg)
+
+---
